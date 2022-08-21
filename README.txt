@@ -31,8 +31,6 @@ https://ielectrony.com/2019/10/01/%D8%B1%D8%A8%D8%B7-%D8%A7%D9%84%D8%B3%D9%8A%D8
 
 
 
-Made by: 
-Ekram Feras for Smart Method Task 1 in August 2022.
 
 
 
